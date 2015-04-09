@@ -1,2 +1,2 @@
 # shady
-Sketchy internet links and snippets.
+Sketchy internet links and snippets. (Some NSFW)
